@@ -5,7 +5,7 @@
 - 🔭 I’m currently working on Luna
 - 🌱 I’m currently learning Everythinggg
 - 📫 Reach me on [Discord!](https://discord.gg/MMNSf3T)
-- ⚡ Fun fact: anime is shit
+- ⚡ Fun fact: my current project **Luna** was called Cycord and Cybot before. Idk why i changed the name lol.
 
 ### Find me on
 [Discord](https://discord.gg/MMNSf3T)
