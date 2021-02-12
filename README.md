@@ -4,7 +4,7 @@
 
 - 🔭 I’m currently working on NOTHING AM FREE BRUV
 - 🌱 I’m currently playing minecraft :)
-- ⚡ Fun fact: i get 6ms ping on hypixel ha noobs
+- ⚡ Fun fact: i got stabbed by technoblade in bedwars
 
 ### Find me on
 [Twitter](https://twitter.com/thecyberpop)
