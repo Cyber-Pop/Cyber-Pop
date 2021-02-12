@@ -6,6 +6,9 @@
 - 🌱 I’m currently playing minecraft :)
 - ⚡ Fun fact: i got stabbed by technoblade in bedwars
 
+
+- i use elementary os bcoz windows suc
+
 ### Find me on
 [Twitter](https://twitter.com/thecyberpop)
 [Twitch](https://twitch.tv/cyberpop_)
