@@ -2,9 +2,9 @@
 
 
 
-- 🔭 I’m currently working on NOTHING AM FREE BRUV
-- 🌱 I’m currently playing minecraft :)
-- ⚡ Fun fact: i got stabbed by technoblade in bedwars
+- 🔭 I’m currently working on lunabot
+- 🌱 I’m currently loving minecraft
+- ⚡ Fun fact: e
 
 
 - i use elementary os bcoz windows suc
